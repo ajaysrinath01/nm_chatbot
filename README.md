@@ -122,7 +122,7 @@ We welcome contributions! Feel free to:
 ---
 
 ## 📫 Contact
-📧 Email: lokesharumugam1826@gmail.com 
+📧 Email: ajaysrinath2905@gmail.com
 
 ---
 
